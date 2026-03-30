@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi! I'm Ujjwal Sharma
 🔭 I’m currently working on Ai project<br>👯 I’m looking to collaborate with sanket kathule<br>🤝 I’m looking for help with sanket kathule<br>🌱 I’m currently learning btech cse with aids<br>💬 Ask me about any computer problem
 
 
